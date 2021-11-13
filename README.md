@@ -1,3 +1,3 @@
 # airdots
 
-these are where the dots for the antair rice go (not that anyone cares or anything)
+ricing is like impregnating a woman at this point
